@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @timbo2040
+- 👀 I’m interested in primarily Minecraft. Plugins and Mods primarily :)
+- 🌱 I’m currently learning Java! (Java and Spigot)
+- 💞️ I’m looking to collaborate on any fun Minecraft plugins!
+- 📫 How to reach me Discord! @its.timo
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: My favorite color is blue :P
